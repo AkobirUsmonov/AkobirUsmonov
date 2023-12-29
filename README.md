@@ -1,1 +1,1 @@
-### Hi, I'm Akobir Usmonov <img src="https://giphy.com/stickers/hello-wave-hand-gM5qFksULw54NMWyry">
+### Hi, I'm Akobir Usmonov <img src="[https://giphy.com/stickers/hello-wave-hand-gM5qFksULw54NMWyry](https://media2.giphy.com/media/gM5qFksULw54NMWyry/200w.webp?cid=ecf05e47jzd67ekbulfwrr3869zg0ktasngmxeyl0vahecjr&ep=v1_stickers_search&rid=200w.webp&ct=s)https://media2.giphy.com/media/gM5qFksULw54NMWyry/200w.webp?cid=ecf05e47jzd67ekbulfwrr3869zg0ktasngmxeyl0vahecjr&ep=v1_stickers_search&rid=200w.webp&ct=s">
